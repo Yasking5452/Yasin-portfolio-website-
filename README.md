@@ -1,1 +1,1 @@
-# Yasin-portfolio-website-
+# YG.co
